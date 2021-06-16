@@ -1,3 +1,4 @@
+Jun 16, 2021
 Hiring - Senior Software Tester - Raleigh NC (Locals preferred) - Min 8 years need - Temp Remote - USC/GC Preferred - Open to Corp to Corp & independent Contract
 MINIMUM EDUCATION AND EXPERIENCE REQUIREMENTS:
 Bachelor's degree in computer science, mathematics, or a related field, and three (3) years of experience in an appropriate field of electronic data processing; or an equivalent combination of education and experience.
